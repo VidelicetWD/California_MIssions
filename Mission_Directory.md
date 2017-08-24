@@ -64,24 +64,5 @@ A & 5th
 363 3rd St. West, Sonoma
 
 
-In Lompoc, you can visit La Purisima Mission and see livestock grazing in the fields.  Santa Barbara's mission includes an amazing aquduct system still in place from the mission era, and at Soledad Mission roosters roam free on the grounds, much as they would have done 200 years ago.
 
-The California missions are only a fraction of those built by Spaniards in their quest to claim vast holdings in North America.  You can travel south of border into Mexico to see and learn about many missions there, or travel between California and Florida, discovering similar structures were built in Arizona, Texas, Mississippi and other states.
-
-The goal of the Spanish government was to recruit local natives, then convert, education, and civilize the indigenous populations (called neophytes or new believers) into European culture and the Catholic religion was a doctrine established in 1531 in Spain.  Believing that it was possible to create self-sustaining mission villages, the government sent "missionaries" from the Catholic Church to help construct and operate ach mission.  The effort did introduce modern foods, trees,
-cultivation methods to produce wine and livestock to areas where fish and wild game were meals of choice, but measles and other diseases also arrived decimating entire native populations except for a few survivors. 
-
-Under the leadership of a Franciscan, Fr. Junipero Serra, the California mission system had been launched.  He is buried at the Carmel Mission.  When the Mexican Congress passed the Act for the Securlization of the Missions of California on August 17, 1833, it called for the colonization of both Alta (our current California in the US) and Baja California (Mexico) from proceeds of the sale of the mission property to private interests.  Most mission fell into disrepair but those with a passion
-for history and heritage have worked hard to save these landmarks.  Onle one or two no longer exist.
-
-How the Mission Locations were Selected:
-
-Mission sites were intended to stay close to the coast and Pacific Ocean.  The furthest inland is Mission Nuestra Senor de la Soledad (Soledad Mission) 30 miles inland.  A scarcity of imported materials and lack of skilled laborers compelled the mission Fathers to employ simple building materials and methods in the construction of mission structures.  Each mission required a water supply for drinking and growing crops and the coastal weather provided a Mediterranean climate easier for
-survival.
-
-Introduced from Spain:
-
-*Olive trees and olive oil production
-*Citrus groves and orchards that launched the fruit industry.
-*Wine grape stock plantings and wine production. 
 
